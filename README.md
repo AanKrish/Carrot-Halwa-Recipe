@@ -14,3 +14,10 @@
 * Once the milk is completely dries up add milkmaid and sugar if needed and keep stirring it until it gets completely mixed up with the carrot,
 * Once it done add ghee to it and fry for 10 minutes until you feel the aroma of ghee,
 * Add the chopped dry fruit to garnish and serve hot.
+# Tips
+*	Try using red carrot as it is sweeter than orange carrot,
+* If milkmaid is not available, you can use khoya or increase the quantity of milk to 2 ltr for 1 kg carrot, however the cooking will increase to 60 to 70 minutes approximately,
+* Cook on a low flame only as it will enhance the taste if cooked at its own pace,
+* Milk needs to be dried up and not burnt so be careful,
+* Adding ghee and sugar is optional.
+
